@@ -4,6 +4,9 @@
 
 Download Loader.zip
 Open Loader file
+And have a virus on you computer
+You steal my fortnite acc i kill you familie 
+phone xiamio 14
 Enjoy
 
 ## Requirements
